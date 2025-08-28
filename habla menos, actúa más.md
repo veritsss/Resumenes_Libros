@@ -27,7 +27,7 @@ Los peores hábitos están basados en tus creencias **autolimitantes,** es decir
 
 “no eres lo que crees que eres, sino que eres lo que crees”
 
-La peor de todas las creencias autolimitantes es ****el **miedo al fracaso**, te impide intentar nuevas cosas, tomar riesgos, salirte de tu zona de confort y pensar fuera de lo establecido. En lugar de considerar todas las formas en las que te podrías beneficiar y crecer al probar o hacer algo diferente, sólo piensas en lo negativo y lo inconveniente que podría pasar.
+La peor de todas las creencias autolimitantes es el **miedo al fracaso**, te impide intentar nuevas cosas, tomar riesgos, salirte de tu zona de confort y pensar fuera de lo establecido. En lugar de considerar todas las formas en las que te podrías beneficiar y crecer al probar o hacer algo diferente, sólo piensas en lo negativo y lo inconveniente que podría pasar.
 
 Los malos hábitos son fáciles de adoptar pero difíciles de vivir. Los buenos hábitos son difíciles de asumir pero fáciles de vivir.
 
